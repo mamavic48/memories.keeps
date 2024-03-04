@@ -1,2 +1,2 @@
 # memories.keeps
-We the memories4keeps are professionals in handling our job. We specializes funeral coverage, like Photo and Video coverage and also we handle live streaming. The main idea of our business are the family that losses their love ones. 
+We the memories4keeps are professionals in handling our job. We specializes funeral coverage, like Photo and Video coverage and also we handle live streaming. The main idea of our business are the family that losses their love ones. Keeping the funeral day safe, real and documented. The second purpose for keeping this funeral day are for those who are not here can watch how the family handles the last days of thies love ones. 
